@@ -23,7 +23,9 @@ I'll write smth in this section someday
 
 ## Contact Me
 Discord: _mickey88
+
 YouTube: [Maths channel](https://www.youtube.com/@q834maths) and [Personal channel](https://www.youtube.com/@q834w)
+
 If you really want my WeChat, my ID is q834wyoag
 
 ---
